@@ -1,5 +1,4 @@
-Chapter 8: Conclusion: Recap of Key Points and Strategies
-=========================================================
+# Recap of Key Points and Strategies
 
 In this book, we have explored the mindset and habits necessary for delivering exceptional customer service. We have discussed the importance of positive thinking, empathy, and continuous improvement, and provided practical strategies for implementing these concepts in your customer service team.
 

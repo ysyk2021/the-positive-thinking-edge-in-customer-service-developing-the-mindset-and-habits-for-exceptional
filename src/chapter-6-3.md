@@ -1,5 +1,4 @@
-Chapter 6: Building a Positive Work Environment for Customer Service Teams: Creating a Culture of Continuous Improvement
-========================================================================================================================
+# Creating a Culture of Continuous Improvement
 
 Building a positive work environment is critical for developing a customer service team that delivers exceptional service. In this chapter, we will explore techniques for creating a culture of continuous improvement and building a positive work environment.
 

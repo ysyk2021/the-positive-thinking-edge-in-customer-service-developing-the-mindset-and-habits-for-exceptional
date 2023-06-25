@@ -1,5 +1,4 @@
-Chapter 1: Introduction: Why Developing the Right Mindset and Habits is Critical for Exceptional Service
-========================================================================================================
+# Why Developing the Right Mindset and Habits is Critical for Exceptional Service
 
 Customer service is a critical component of any business. It can make or break a customer's experience with your company, and ultimately impact your bottom line. In order to provide exceptional service, it is essential to develop the right mindset and habits.
 

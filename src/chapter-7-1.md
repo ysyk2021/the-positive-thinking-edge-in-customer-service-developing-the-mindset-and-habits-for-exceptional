@@ -1,5 +1,4 @@
-Chapter 7: Measuring and Evaluating Customer Service Success: Metrics for Measuring Customer Satisfaction and Loyalty
-=====================================================================================================================
+# Metrics for Measuring Customer Satisfaction and Loyalty
 
 Measuring and evaluating customer service success is critical for identifying areas for improvement and ensuring that your team is delivering exceptional service. In this chapter, we will explore metrics for measuring customer satisfaction and loyalty.
 

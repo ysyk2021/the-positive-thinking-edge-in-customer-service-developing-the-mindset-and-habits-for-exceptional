@@ -1,5 +1,4 @@
-Chapter 6: Building a Positive Work Environment for Customer Service Teams: Supporting and Motivating Customer Service Teams
-============================================================================================================================
+# Supporting and Motivating Customer Service Teams
 
 A positive work environment is essential for developing a customer service team that delivers exceptional service. In this chapter, we will explore techniques for supporting and motivating customer service teams.
 

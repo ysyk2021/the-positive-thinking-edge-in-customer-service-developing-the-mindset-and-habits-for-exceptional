@@ -1,5 +1,4 @@
-Chapter 7: Measuring and Evaluating Customer Service Success: Evaluating Individual and Team Performance
-========================================================================================================
+# Evaluating Individual and Team Performance
 
 Evaluating individual and team performance is critical for ensuring that your customer service team is delivering exceptional service. In this chapter, we will explore techniques for evaluating individual and team performance.
 
