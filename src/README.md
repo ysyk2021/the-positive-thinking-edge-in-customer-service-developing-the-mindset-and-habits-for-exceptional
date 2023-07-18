@@ -8,5 +8,4 @@ Whether you're a front-line employee looking to improve your customer service sk
 
 So if you're ready to take your customer service skills to the next level, "The Positive Thinking Edge in Customer Service" is the book for you. Let's get started on the path to service excellence!
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
