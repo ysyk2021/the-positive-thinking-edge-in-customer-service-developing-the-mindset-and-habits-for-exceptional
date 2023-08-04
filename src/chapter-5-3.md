@@ -1,4 +1,4 @@
-Chapter X: Building Long-Term Relationships with Customers
+Building Long-Term Relationships with Customers
 ==========================================================
 
 In the realm of customer service, building long-term relationships with customers is essential for sustained success and business growth. This chapter explores the strategies and mindset required to develop strong and lasting connections with customers. By cultivating positive thinking habits and implementing effective relationship-building techniques, customer service professionals can foster loyalty, trust, and mutual satisfaction.
