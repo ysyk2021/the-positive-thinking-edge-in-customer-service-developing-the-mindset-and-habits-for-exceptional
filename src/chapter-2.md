@@ -1,5 +1,3 @@
-Chapter 2: The Science of Positive Thinking
-===========================================
 
 Positive thinking is more than just a fluffy concept. It has been studied extensively in the field of positive psychology and has been proven to have a significant impact on our mental health, physical health, and overall well-being. In this chapter, we will explore the science behind positive thinking and its applications in customer service.
 

@@ -1,5 +1,3 @@
-Why Developing the Right Mindset and Habits is Critical for Exceptional Service
-==========================================================================================
 
 In order to provide exceptional customer service, developing the right mindset and habits is crucial. This chapter delves into the reasons why cultivating a positive mindset and adopting effective habits are essential for delivering exceptional service experiences.
 

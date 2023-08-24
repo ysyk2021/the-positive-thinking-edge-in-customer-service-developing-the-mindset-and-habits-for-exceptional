@@ -1,5 +1,3 @@
-Chapter 6: Building a Positive Work Environment for Customer Service Teams
-==========================================================================
 
 A positive work environment is essential for developing a customer service team that delivers exceptional service. In this chapter, we will explore the role of positive thinking in team dynamics and provide practical techniques for supporting and motivating customer service teams.
 

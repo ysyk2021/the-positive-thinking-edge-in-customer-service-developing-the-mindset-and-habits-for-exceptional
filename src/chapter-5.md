@@ -1,5 +1,3 @@
-Chapter 5: Managing Customer Complaints with a Positive Attitude
-================================================================
 
 Customer complaints are an inevitable part of any customer service role. However, with a positive attitude and effective strategies for resolution, customer complaints can be turned into opportunities for growth and building long-term relationships with customers. In this chapter, we will explore strategies for managing customer complaints with a positive attitude.
 

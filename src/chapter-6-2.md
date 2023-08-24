@@ -1,5 +1,3 @@
-Supporting and Motivating Customer Service Teams
-===========================================================
 
 In this chapter, we will explore the importance of supporting and motivating customer service teams in cultivating a positive thinking edge for exceptional service. By understanding the significance of team support and motivation, readers can develop strategies to empower their customer service teams and foster a mindset and habits that drive exceptional service delivery.
 

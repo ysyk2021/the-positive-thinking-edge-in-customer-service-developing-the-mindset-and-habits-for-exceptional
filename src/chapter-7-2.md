@@ -1,5 +1,3 @@
-Evaluating Individual and Team Performance
-=====================================================
 
 Evaluating individual and team performance is essential in customer service to ensure the delivery of exceptional service. This chapter explores strategies and approaches for assessing performance effectively, promoting continuous improvement, and fostering a culture of excellence within the customer service team.
 
